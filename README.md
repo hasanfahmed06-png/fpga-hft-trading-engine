@@ -1,1 +1,1 @@
-halal frequency tradings
+halal frequency trading
